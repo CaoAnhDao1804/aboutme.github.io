@@ -1,4 +1,5 @@
 # Manage Your Time
+![Practive](time.jpg "Logo Title Text 1")
 Firt of all, I think that everyone have same times, but they use it differently. So, one of them become success person and more person waste the time they have, and then they become failure person.
 By the way, You are success or failue? It depends on how to you use time.
 Let me discover how to manage your time. Let's started!
