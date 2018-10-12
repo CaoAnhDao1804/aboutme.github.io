@@ -17,10 +17,10 @@ My goal is become international person. So, I try to learn English language. Bec
 - Don't fraid of mistake
 + Become confident person
 
-#Timeline
-*October, 2018
+# Timeline
+* October, 2018.
 [12/10/2018](https://www.google.com)
 [12/11/2018](https://www.google.com)
-*November, 2018
+* November, 2018.
 [12/11/2018](https://www.google.com)
 [12/11/2018](https://www.google.com)
