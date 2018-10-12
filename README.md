@@ -1,6 +1,6 @@
 # My timeline
 ## First of all, thank you so much for watching my website
-![Practive](pratice.jpe "Logo Title Text 1")
+![Practive](pratice.jpg "Logo Title Text 1")
 1. About me
 I am Cao Thi Anh Dao. Currently, I'm senior student in Da Nang University of Technology.
 As you know or you dont know, my major is Information Technology.
