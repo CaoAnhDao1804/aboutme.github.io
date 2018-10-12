@@ -17,7 +17,7 @@
 
 # Timeline
 * October, 2018.
-[12/10/2018](https://www.google.com)
+[12/10/2018](manageyourtime.md)
 [12/11/2018](https://www.google.com)
 * November, 2018.
 [12/11/2018](https://www.google.com)
