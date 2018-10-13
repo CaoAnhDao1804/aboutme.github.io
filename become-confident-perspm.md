@@ -1,4 +1,6 @@
 # Become Confident PerSon
+![Practive](confident.jpg "Logo Title Text 1")
+
 Confidence is a key part of being successfull in almost any situation. It's especially importent when it come to your professional life. 
 One of the areas where confidence really matters is public speaking. 
 Unfortunately, a lot of people are afraid of public speaking (including seasoned professiona(). 
