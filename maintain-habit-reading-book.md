@@ -4,11 +4,11 @@
 + First of all, I really like book, especially book about mentality.
 + Today, I am upset because I have to leave my  book. In the future, I make suse that I will buy it again. I want to keep a little memory about these book in here. :(((
 ### Some pictures 
-![Practive](pratice.jpg "Logo Title Text 1")
-![Practive](pratice.jpg "Logo Title Text 1")
-![Practive](pratice.jpg "Logo Title Text 1")
-![Practive](pratice.jpg "Logo Title Text 1")
-![Practive](pratice.jpg "Logo Title Text 1")
+![Practive](88c6dc1efdd81d8644c9.jpg "Logo Title Text 1")
+![Practive](998cee55cf932fcd7682.jpg "Logo Title Text 1")
+![Practive](e82926f20734e76abe25.jpg "Logo Title Text 1")
+![Practive](fca0747a55bcb5e2ecad.jpg "Logo Title Text 1")
+
 The most successfull people in the world make time to read, study and learn  far beyond their grade school years. In turn, they're better thinkers, innovators and leaders.
 With infinite knowledge from books, we can improve so much about every thing in our life. Perhaps we can challege ourselves to read book every day.
 ## List 10 benifit of reading book
@@ -20,13 +20,13 @@ How much stress you have at university, at work, in your personal relationship o
 
 No matter, don't worry. It all just slips away when you lose yourself in a great story.  A well book tranport you to other realms, distract you and keep you in the present moment, letting tensions drain away and  allowing you to relax. 
 ##### 3. Knowledge: 
-![Practive](pratice.jpg "Logo Title Text 1")
+![Practive](knowledge.jpg "Logo Title Text 1")
 
 Everything you read fills your head with new bits of information, and you never know when it might come in handy. The more knowledge you have, the better-equipped you are to tackle any challenge you'll ever face.
 
 Additionally, here;s a bit of food for thought:  should you ever find yourself in dire circumstances, rememver that althoufh you might lose everything else - your job, your possessions, your money, even your heath- knowlegde can never be taken from you.
 ##### 4. Vocabulary Expansion: 
-![Practive](pratice.jpg "Logo Title Text 1")
+![Practive](sapa.jpg "Logo Title Text 1")
 
 The more you read, the more words you gain ecposure to, anf they'll inevitably maike theri way into  your veryday vocabulary. 
 Being articulate and well-spoken is of great help in any profession, and knowing that you can speak to higher-ups with self-confidence can be an enormous boost to  your self-esteem.
