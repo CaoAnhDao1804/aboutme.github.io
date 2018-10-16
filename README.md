@@ -19,6 +19,7 @@
 * October, 2018.
 [12/10/2018](manageyourtime.md)
 [13/10/2018](become-confident-perspm.md)
+[16/10/2018](maintain-habit-reading-book.md)
 * November, 2018.
 [12/11/2018](https://www.google.com)
 [12/11/2018](https://www.google.com)
